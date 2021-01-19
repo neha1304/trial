@@ -1,1 +1,1 @@
-I love shinchan
+I love shinchan to my fullest.	
