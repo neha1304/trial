@@ -1,1 +1,1 @@
-I love shinchan to my fullest.	
+I love shinchan to my fullest.my first choice.
