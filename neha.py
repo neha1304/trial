@@ -1,1 +1,1 @@
-import numpy
+I love shinchan to my fullest.	
