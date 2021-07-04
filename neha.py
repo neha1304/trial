@@ -1,1 +1,1 @@
-print('I love shinchan to my fullest.')
+print('I love shinchan to my fullest.  ')
